@@ -16,6 +16,13 @@ Week One
 >##[Point] (https://www.flickr.com/photos/aynsleylongridge/albums/72157660476164062 "Point"). 
 >*During week one we looked at Point. We practiced in 1, 2, 3, 5 and 50 points before moving onto screen where we were tasked with creating our own Iphone backgroundsts using only point.*
 
+>Friday Lecture
+
+Week Two
+--------
+>##[Line] (https://www.flickr.com/photos/aynsleylongridge/albums/72157660089892320 "Line"). 
+>*Week two began with looking at line. We practiced again in 1, 2, 3, 5 and 50 points on paper before moving onto screen where we were asked again to create Iphone backgrounds but this time using only line.*
+
 
 Type Specimen Poster Project
 ----------
